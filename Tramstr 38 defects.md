@@ -2,13 +2,13 @@
 
 ## Bathroom
 
-One of tiles by the bathtub is really broken and it needs to be fixed. We would like to know if you are going to fix it or we need to fix it for ourselves. For us is specially dangerous since it crack has sharp edges and spikes and we have a little 10 months old that we bath there everyday and it's not the first time he try to touch it. It's definitely a hazard. 
+One of tiles by the bathtub is really broken. It has sharp edges and spikes and we think it's a hazard, specially for our 10 month old boy. 
 
 ![IMG_1248](images/Bathroom/IMG_1248.jpeg)
 
 ![IMG_1249](images/Bathroom/IMG_1249.jpeg)
 
-The bathroom ball lid is also broken and scratched. 
+The toiled bowl lid is also broken and scratched. 
 
 ![IMG_1250](images/Bathroom/IMG_1250.jpeg)
 
@@ -46,7 +46,7 @@ Close to the dinning area there is a black stain on the ceiling.
 
 ## Kitchen
 
-Some of the doors on the kitchen cupboards have scratches and dents. 
+Some of the doors on the kitchen's cupboards have scratches and dents. 
 
 ![IMG_1164](images/Kitchen/IMG_1164.jpeg)
 
@@ -60,7 +60,7 @@ Some of the doors on the kitchen cupboards have scratches and dents.
 
 ![IMG_1257](images/Kitchen/IMG_1257.jpeg)
 
-Also the glass-ceramic stove has a dent on the rim of the glass. 
+Also the glass-ceramic stove has a dent on the rim of the ceramic glass. 
 
 ![IMG_1167](images/Kitchen/IMG_1167.jpeg)
 
