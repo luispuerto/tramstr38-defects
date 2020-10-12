@@ -42,7 +42,7 @@ One of the trims on the window on the dinning area is missing.
 
 Close to the dinning area there is a black stain on the ceiling. 
 
-![Ceiling Stain](images/Ceiling Stain.jpeg)
+![Ceiling Stain](images/Ceiling%20Stain.jpeg)
 
 ## Kitchen
 
