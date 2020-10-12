@@ -14,21 +14,23 @@ The toiled bowl lid is also broken and scratched.
 
 ![IMG_1251](images/Bathroom/IMG_1251.jpeg)
 
+![IMG_1260](images/Bathroom/IMG_1260.jpeg)
+
 ![IMG_1252](images/Bathroom/IMG_1252.jpeg)
 
 ## Entrance closet
 
 The right door on the entrance closet has the paint around the pin for locking the door peeled. 
 
-![IMG_3578](images/Entrance closet/IMG_3578.jpeg)
+![IMG_3578](images/Entrance%20closet/IMG_3578.jpeg)
 
-![IMG_3579](images/Entrance closet/IMG_3579.jpeg)
+![IMG_3579](images/Entrance%20closet/IMG_3579.jpeg)
 
 Also, one of the edges of left door on the right closed is not well painted. 
 
-![IMG_1253](images/Entrance closet/IMG_1253.jpeg)
+![IMG_1253](images/Entrance%20closet/IMG_1253.jpeg)
 
-![IMG_1254](images/Entrance closet/IMG_1254.jpeg)
+![IMG_1254](images/Entrance%20closet/IMG_1254.jpeg)
 
 ## Windows
 
