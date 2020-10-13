@@ -18,6 +18,14 @@ The toiled bowl lid is also broken and scratched.
 
 ![IMG_1252](images/Bathroom/IMG_1252.jpeg)
 
+There are also some dints and dents on the bathroom sink. 
+
+![IMG_1265](images/Bathroom/IMG_1265.jpeg)
+
+![IMG_1266](images/Bathroom/IMG_1266.jpeg)
+
+![IMG_1267](images/Bathroom/IMG_1267.jpeg)
+
 ## Entrance closet
 
 The right door on the entrance closet has the paint around the pin for locking the door peeled. 
